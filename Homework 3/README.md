@@ -1,0 +1,3 @@
+# mikeward_hw3_csi2520_fs2021
+# mikeward_hw3_csi2520_fs2021
+# mikeward_hw3_csi_2520_fs2021
